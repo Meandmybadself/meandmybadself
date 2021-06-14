@@ -6,4 +6,4 @@ Jeffery Bennett is a good cop, gone bad, framed for a crime that he didn't commi
 ## URLs
 
 * Life - https://meandmybadself.com
-* Work - https://permanentrecord.io
+* Work - https://herodigital.com
